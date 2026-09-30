@@ -1,14 +1,3 @@
-# Sollfege Smart Electronics IPO: GMP Today, Price, Dates and Allotment Status
-
-**Meta Title:** Sollfege Smart Electronics IPO: GMP Today, Price, Dates and Allotment Status
-
-**Meta Description:** Sollfege Smart Electronics IPO opens on 30 September 2026 at a fixed price of ₹55. Check GMP live, price band, closing date, lot size and allotment status.
-
-**Alt Text:** Sollfege Smart Electronics IPO GMP, price, dates, lot size and allotment status
-
-**Subtitle:** Sollfege Smart Electronics IPO opens on 30 September 2026 at a fixed price of ₹55 per share. Check GMP, lot size, key dates, allotment status and BSE SME listing details.
-
----
 
 ## Sollfege Smart Electronics IPO: GMP Today, Price, Dates and Allotment Status
 
